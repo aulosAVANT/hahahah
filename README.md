@@ -1,2 +1,2 @@
-# hahahah
-nehsto si
+# Prezentaciq za umreli kucheta
+da
